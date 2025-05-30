@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=rudyspho&label=SITH+ETERNAL++&color=ff0000&style=plastic)
 
  <p align="center"> 
-<strong>${\color{FF0000}☆}$ ⠀https://bundlrs.cc/r2-d2 ⠀<strong>${☆{FF0000}☆}$
+<strong>☆ ⠀https://bundlrs.cc/r2-d2 ⠀<strong>☆
 
 <p align="center">
 <h4 align="center"
