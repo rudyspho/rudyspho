@@ -8,4 +8,4 @@
 
 
 
-I'm not gonna lie bruh I don't know how to put the stamp above Faolan so you're gonna.have to deal with it until.. I can figure it out
+!I'm not gonna lie bruh I don't know how to put the stamp above Faolan so you're gonna.have to deal with it until.. I can figure it out
