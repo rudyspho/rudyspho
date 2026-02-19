@@ -1,7 +1,7 @@
 <p align="center">
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=rudyspho&label=listeners++&color=16635D&style=plastic)
+![](https://komarev.com/ghpvc/?username=rudyspho&label=listeners++&color=16635D&style=FLAT-SQUARE)
 
 <p align="center">
 
