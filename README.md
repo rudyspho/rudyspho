@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=rudyspho&label=listeners++&color=16635D&style=FLAT-SQUARE)
 
 <p align="center">
-<a href="https://toyhou.se/38056602.tariq-falquierre-sonne/gallery"><i>look at my chud son...</i></a>
+<a href="https://toyhou.se/38056602.tariq-falquierre-sonne/gallery"><i>pssst... look at my chud son...</i></a>
 
 <p align="center">
 
